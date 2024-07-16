@@ -1,6 +1,6 @@
 # Suhel Alam
 
-[LinkedIn](https://www.linkedin.com/in/suhel-alam/) | (312) 647-3169 | suhelalam415@gmail.com
+[LinkedIn](https://www.linkedin.com/in/suhel-alam/) | (312) 647-3169 | suhelalam415@gmail.com | https://suhelalam.github.io/
 
 ---
 
